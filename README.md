@@ -7,3 +7,5 @@ Hello !
 ![MEOWIE!](Untitled5.png)
 
 I do not appreciate copying , so please show respect and do not copying.
+
+I LOVE MIKA KAGEHIRA ♥︎
